@@ -19,3 +19,5 @@ https://user-images.githubusercontent.com/28234322/126145696-c8ddc161-85cc-4655-
 # Capitalism vs. Socialism
 
 ![](https://user-images.githubusercontent.com/28234322/127463064-e127973b-1714-44a7-99c4-a59d264776a3.png)
+
+https://twitter.com/BlondieAtlanta/status/1346474107764789250
