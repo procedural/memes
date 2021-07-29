@@ -13,3 +13,9 @@ https://user-images.githubusercontent.com/28234322/126145696-c8ddc161-85cc-4655-
 ![](https://user-images.githubusercontent.com/28234322/126165033-41de6abd-086c-4625-8728-b424709d3e62.jpg)
 
 ![](https://user-images.githubusercontent.com/28234322/126165925-d5e53357-14e2-495d-92e7-69fe7f4e80c4.png)
+
+---
+
+# Capitalism vs. Socialism
+
+![](https://user-images.githubusercontent.com/28234322/127463064-e127973b-1714-44a7-99c4-a59d264776a3.png)
